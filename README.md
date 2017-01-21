@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome to Mahfuz Strip club
 
 You can use the [editor on GitHub](https://github.com/night-fury12/Fucked-Up/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
